@@ -51,4 +51,22 @@ En 1819, el empresario inglés Denis Johnson rediseñó la Draisine creando una 
 
 Estos dos modelos pioneros no incluían pedales. La invención de la bicicleta con pedales se le atribuye al escocés Kirkpatrick MacMillan en 1839. Este herrero nacido en Keir, pequeña aldea del consejo de Dumfries y Galloway, incorporó a su prototipo unas barras fabricadas en metal al eje delantero de la rueda, con las cuales los hombres y mujeres se podían impulsar con la fuerza de sus piernas. A pesar de ello, muchos historiadores dudan de la veracidad de esta teoría, ya que no existe ningún modelo anterior a la década de los años 60.
 
+La popularización de la bicicleta
+La primera bicicleta con pedales documentada fue la conocida como Boneshaker (agitador de huesos), debido a la sensación que transmitía cuando circulaba por las calles adoquinadas. Pierre Lallement, hijo de fabricantes de carruajes franceses, inventó este prototipo en la tienda de un fabricante de carritos para bebes, donde trabajó en 1862.
+
+Este francés viajó a Estados Unidos, donde patentó su invento de la bicicleta con pedales en 1866 gracias al respaldo económico de James Carroll, convirtiéndose en el primer registro público del mundo de un vehículo de dos ruedas con pedales.
+
+En 1870 comenzó a fabricarse uno de los modelos más icónicos de la historia, la bicicleta de rueda alta de James Starley. Conocida popularmente como Penny Farting, esta bicicleta fue la primera en fabricarse completamente en metal. Además, las ruedas eran cada vez más grandes, ya que de esta forma se podía avanzar más rápido con cada pedalada.
+
+El principal problema de todos estos modelos de bicicletas era el gran número de caídas. Por este motivo, en la década de 1880 surgieron las conocidas como “bicicletas de seguridad”. El inventor inglés John Kemp Starley ideó la Rover, una bicicleta con dos ruedas del mismo tamaño y de tracción trasera por cadena que proporcionaba una mayor estabilidad respecto a los diseños anteriores.
+
+En 1888, el escocés John Boyd Dunlop, fundador de la famosa compañía de neumáticos, inventó las primeras ruedas hinchables de caucho con cámara de aire. Estas ruedas neumáticas hicieron que los trayectos fuesen mucho más cómodos en la época.
+
+La bicicleta fue la máquina de la libertad para las mujeres de la época victoriana. Este medio de transporte proporcionó a las damas inglesas, que vestían pesados trajes y corsés, una mayor movilidad para poder visitar otros barios y abrir sus horizontes.
+
+Un invento que se convirtió en todo un símbolo de libertad y emancipación para el sector femenino, que vivía condenado al aislamiento de la vivienda familiar en la encorsetada sociedad inglesa de finales del XIX.
+
+A partir de la década de los 90, la moda de las bicicletas, que habían comenzado a producirse en masa, disminuyó con la aparición del automóvil, considerado como el transporte del futuro. La popularización de los automóviles a partir de los años 20 inició una nueva época de investigación de nuevos modelos para construir bicicletas cada vez más rápidas, como los diseños que se pueden encontrar en la actualidad.
+
+
 https://es.wikipedia.org/wiki/Bicicleta#/media/Archivo:Cycling_(road)_pictogram.svg
