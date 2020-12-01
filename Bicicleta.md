@@ -67,6 +67,16 @@ La bicicleta fue la máquina de la libertad para las mujeres de la época victor
 Un invento que se convirtió en todo un símbolo de libertad y emancipación para el sector femenino, que vivía condenado al aislamiento de la vivienda familiar en la encorsetada sociedad inglesa de finales del XIX.
 
 A partir de la década de los 90, la moda de las bicicletas, que habían comenzado a producirse en masa, disminuyó con la aparición del automóvil, considerado como el transporte del futuro. La popularización de los automóviles a partir de los años 20 inició una nueva época de investigación de nuevos modelos para construir bicicletas cada vez más rápidas, como los diseños que se pueden encontrar en la actualidad.
+1
+2
+3
+4
+5
+6
+7
+8
+9
+10
 
 
 https://es.wikipedia.org/wiki/Bicicleta#/media/Archivo:Cycling_(road)_pictogram.svg
