@@ -9,7 +9,7 @@ Historia de la bicicleta
 1800-1830
 Todavía sigue habiendo dudas acerca de si la bicicleta se inventó antes de 1800, pero hay un amplio consenso para atribuir este invento al alemán Karl von Drais allá por 1817…
 
-Leer más
+Leer más 
 
 1840-1870
 Durante la década de 1860, el fundador de la empresa Michaux desarrolló la primera bicicleta comercial de dos ruedas. La misma ya disponía de pedales y se hizo muy popular…
@@ -67,17 +67,6 @@ La bicicleta fue la máquina de la libertad para las mujeres de la época victor
 Un invento que se convirtió en todo un símbolo de libertad y emancipación para el sector femenino, que vivía condenado al aislamiento de la vivienda familiar en la encorsetada sociedad inglesa de finales del XIX.
 
 A partir de la década de los 90, la moda de las bicicletas, que habían comenzado a producirse en masa, disminuyó con la aparición del automóvil, considerado como el transporte del futuro. La popularización de los automóviles a partir de los años 20 inició una nueva época de investigación de nuevos modelos para construir bicicletas cada vez más rápidas, como los diseños que se pueden encontrar en la actualidad.
-20
-21
-aaaaaa
-22
-23
-24
-25
-26
-27
-28
-29
-30
 
 https://es.wikipedia.org/wiki/Bicicleta#/media/Archivo:Cycling_(road)_pictogram.svg
+G:\Repositorio-Github\Repositorio de prueba\Imagen.drawio.svg
