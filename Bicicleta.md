@@ -69,6 +69,7 @@ Un invento que se convirtió en todo un símbolo de libertad y emancipación par
 A partir de la década de los 90, la moda de las bicicletas, que habían comenzado a producirse en masa, disminuyó con la aparición del automóvil, considerado como el transporte del futuro. La popularización de los automóviles a partir de los años 20 inició una nueva época de investigación de nuevos modelos para construir bicicletas cada vez más rápidas, como los diseños que se pueden encontrar en la actualidad.
 20
 21
+
 22
 23
 24
